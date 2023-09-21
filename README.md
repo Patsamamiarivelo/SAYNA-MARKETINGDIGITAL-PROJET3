@@ -1,2 +1,2 @@
 # SAYNA-MARKETINGDIGITAL-PROJET3
-Projet 3: la communication digitale
+Projet MRKGT 3: la communication digitale
